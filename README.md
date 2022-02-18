@@ -1,2 +1,0 @@
-# MineExe
-44hUTA2jna6ZaAwdQPXcSJEjrevdgmqR6MxWPYbnA4fNeDhanqh5CeqZCantDpoWCVRDzBa2jVSee8w6KhdMqyyZ1PRCuXe
